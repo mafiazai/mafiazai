@@ -6,5 +6,5 @@
 <img src="https://imgur.com/RTFrJu2.png"</p>
 <p align="center">usually up to chat (dni status if otherwise) will conversate with pretty much anyone (not picky ..^_^) but don't be a megafreak to me ok. let's be friends. c+h fine w2i etc. love and peace </p>
 <p align="center">fandoms include identity v, genshin, hsr, hundred line, persona, horror, funger, death note, hannibal, house, sherlock, iasip, more tumblrslop, misc gacha games, misc vns, i forget </p>
-<p align="center"> <img src="https://imgur.com/2jxCM22.png" style="width: 50px;"> ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=perisicnikola37)
- </p>
+<p align="center"> <img src="https://imgur.com/2jxCM22.png" style="width: 50px;"> </p>
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=mafiazai)
